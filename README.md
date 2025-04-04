@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on ...  with more designers or developers.
 - 📫 How to reach me ... you can reach me through mt respitories in git hub.
 - 😄 Pronouns: ...(●'◡'●)   ╰(*°▽°*)╯   ☆*: .｡. o(≧▽≦)o .｡.:*☆   (┬┬﹏┬┬)   ಥ_ಥ   (●ˇ∀ˇ●)   (*^▽^*)   *^____^*   q(≧▽≦q)
-- ⚡ Fun fact: ...  i am a 13 year old guy,
+- ⚡ Fun fact: ...  i am a 15 year old girl,
 - i am website developer
 - i am a web app developer
 - i am a short time singer
